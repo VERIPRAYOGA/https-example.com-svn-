@@ -1,2 +1,2 @@
-# https-example.com-svn-
+veriprayoga.co.id
 bismilah sukses
